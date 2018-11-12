@@ -1,2 +1,3 @@
 Timo is cute. 
-So is anne.
+So is Anne.
+Amumu likes Anne.
