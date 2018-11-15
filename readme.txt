@@ -7,3 +7,4 @@ Xiaopao likes Timo beacuse Timo is rich.
 Now, there are so many yoders.
 
 Yoders are all very cute.
+Yoders are all very small.
