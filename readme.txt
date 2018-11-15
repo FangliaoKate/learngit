@@ -6,7 +6,7 @@ Lulu is very very cute.
 Xiaopao likes Timo beacuse Timo is rich.
 Now, there are so many yoders.
 
-Yoders are all very cute.
+Yoders are all very rich.
 Yoders are all very small.
 
 Yoders dev.
